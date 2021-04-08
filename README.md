@@ -1,1 +1,1 @@
-# dane-newela
+# tutaj infev hostuje zdjecia
